@@ -6,6 +6,7 @@ Tus amigos peludos pueden alojarse contigo en muchos hoteles dentro de la zona c
 
 Toda la playa es pet friendly, recuerda recoger siempre los desechos de tu perro, lleva pelotas y juguetes que puedan mojarse para mayor diversión.
 
+Format: ![Playa Olas Altas](https://media-cdn.tripadvisor.com/media/photo-w/01/22/b2/e4/looking-north-toward.jpg)
 La playa Olas Altas es recomendada para llevar a tu mascota porque tiene pocas personas y los perritos pueden correr por toda la playa.
 
 Barracruda's tiene 2 sucursales que son 100% amigables con mascotas. Y puedes visitarlos en el Malecón y otro en el mero centro de Mazatlán. En el malecón encontrarás otros lugares donde te dejan entrar con mascotas si te sientas en la terraza, o areas destinadas.
