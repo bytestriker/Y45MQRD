@@ -16,3 +16,10 @@ Existen tours que te llevan en una expedición a ayudar a la conservación de la
 
 
 ![Ciclismo de Montaña](https://media-cdn.tripadvisor.com/media/photo-s/0a/88/0c/2f/mazatlan-bike-tour.jpg)
+
+> Recomendaciones para disfrutar tus recorridos en bici.
+> 1. *Siempre lleva agua*. La hidratación es muy importante, tu cuerpo regula su temperatura mediante el sudor así que lo mejor es beber agua moderadamente para evitar algún contratiempo. ¡La salud es lo más importante!
+> 2. *Lleva una bolsa de plástico resistente para residuos*. Cuida el medio ambiente, permite que más y más personas se enamoren de lo bonito que es Mazatlán, recoge tu desechos siempre o ayuda a los demás si ellos no pueden.
+> 3. *Usa casco*. Los accidentes siempre están a la orden del día por eso te recomendamos que utilices casco y equipo de seguiridad necesario para que tu integridad física no corr peligro.
+> 4. *Herramientas y parches*. Es común que pinchemos una de las gomas sin querer, o quizá la bici requiera de un ajuste en la elevación del asiento... algún compañero con necesidad de una mano, lleva algo que pueda ser de utilidad en caso de ser necesario.
+> 5. *Revisa tu bici antes de rodar*. Es importante saber que los frenos y el sistema de tracción anda bien, darle mantenimiento a tu equipo regularmente ayudará a conservarlo en buen estado y listo para la acción siempre.
