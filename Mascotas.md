@@ -21,8 +21,13 @@ Para no batallar con el alojamiento de las mascotas, ve a alguno de los múltipl
 
 
 > Consejos para disfrutar de la playa con tu perro sin riesgos
-> 1. Cuidado con los golpes de calor **lleva una sombrilla o busca un lugar bajo la sombra, a los perros les gusta correr mucho, y un sofoco le arruinaría la diversión. Haz que tu amigo peludo descanse cada cierto tiempo para que se recupere. Aunque la piel de los perros es protegida por su pelo, también les podemos aplicar bloqueador solar en la nariz para que no se les reseque en caso de estar mal hidratados**
-> 2. Hidratación **lleva agua potable para que tome agua por lo menos 1 vez cada 40 minutos, si la rechaza déjalo que siga jugando; impide que tome agua de mar ya que el exceso de sales los intoxica.**
-> 3. Picaduras de medusa **si sospechas que tu perro ha sido picado por un bicho de éstos, llévalo inmediatamente al veterinario, en Mazatlán hay muchos lugares para atender a tu mascota en caso de que sea necesario.**
-> 4. Baños cortos **después de ir a la playa puedes darle un refrescante baño con agua potable a tu perro para eliminar el exceso de sales de su pelaje, el baño también ayudará a que la arena que tenga se caiga y sea más sencillo darle una cepillada antes de entrar a casa**
-> 5. Higiene después de la playa **el baño corto no debe ser con champú para perros porque los restos de arena podrían irritar su piel o causarle rozaduras, el momento ideal para darle un buen baño a tu mascota es cuando estés de regreso en casa.**
+> 1. Cuidado con los golpes de calor 
+**lleva una sombrilla o busca un lugar bajo la sombra, a los perros les gusta correr mucho, y un sofoco le arruinaría la diversión. Haz que tu amigo peludo descanse cada cierto tiempo para que se recupere. Aunque la piel de los perros es protegida por su pelo, también les podemos aplicar bloqueador solar en la nariz para que no se les reseque en caso de estar mal hidratados**
+> 2. Hidratación 
+**lleva agua potable para que tome agua por lo menos 1 vez cada 40 minutos, si la rechaza déjalo que siga jugando; impide que tome agua de mar ya que el exceso de sales los intoxica.**
+> 3. Picaduras de medusa 
+**si sospechas que tu perro ha sido picado por un bicho de éstos, llévalo inmediatamente al veterinario, en Mazatlán hay muchos lugares para atender a tu mascota en caso de que sea necesario.**
+> 4. Baños cortos 
+**después de ir a la playa puedes darle un refrescante baño con agua potable a tu perro para eliminar el exceso de sales de su pelaje, el baño también ayudará a que la arena que tenga se caiga y sea más sencillo darle una cepillada antes de entrar a casa**
+> 5. Higiene después de la playa 
+**el baño corto no debe ser con champú para perros porque los restos de arena podrían irritar su piel o causarle rozaduras, el momento ideal para darle un buen baño a tu mascota es cuando estés de regreso en casa.**
