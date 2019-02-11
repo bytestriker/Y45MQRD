@@ -1,6 +1,5 @@
 # Voleibol, el deporte de playa por excelencia #
 Aunque el voleibol es un deporte ˝joven˝ inventado el 9 de Febrero de 1895 en EEUUAA no tardó mucho tiempo en llegar hasta las costas y hacerse muy popular, hasta que en 1996 en Atlanta se le incluyó como disciplina olímpica.
-La historia relata que a Brasil se le podría atribuir el nacimiento de este deporte, porque fueron ellos los que hicieron el primer campeonato de voleibol sobre arena en 1941.
 Es un deporte muy dinámico, hasta en una ˝cascarita˝ terminas bien trabajado; para que te lleves algo más que un llaverito, juega con tus amigos o con alguien en una de las playas que hay Mazatlán, puedes ir a cualquiera de las que te mencionaré aquí:
 Isla de la Piedra, Playa Olas Altas, Playa los Pinos, Playa Marlin, Playa Norte, Playa Camarón y Playa Gaviotas, Playa Sábalo, Playa Cerritos y Playa Bruja, Playa El Verde Camacho.
 ![Playa Olas Altas](https://static1-directoriodehote.netdna-ssl.com/files/atractivos/2012/A1_2012.jpg)
@@ -13,6 +12,7 @@ Apenas comienza el año, y Mazatlán va con 5 equipos a la olimpiada estatal de 
 Los equipos de estas categorías:  Promocional, Juvenil Menor, Juvenil Mayor y Superior, competirán del próximo 21 al 23 de Febrero de 2019.
 ![Volei Playa Masculino](https://lineadirectaportal.com/wp-content/uploads/2aed132f-ec50-4934-a6f9-db198804dea1.jpg)
 No te pierdas de este evento, busca tus boletos.
+Dentro de la conocido a "Zona Dorada" puedes visitar Playa Gaviotas y Camarón para un encuentro amistoso de voleibol, esta playa es de las más hermosas del mundo, podrás gozar de una playa con olas bajas y muchas personas para poder jugar pasando un momento de diversión al aire libre.
 
 > Recomendaciones:
 **Protege el medio ambiente, lleva una bolsa para guardar tus desechos y deposítala en algún lugar permitido, conserva las playas y el ecosistema de Mazatlán, esperamos tu visita.**

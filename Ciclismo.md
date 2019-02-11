@@ -6,7 +6,7 @@ Puedes contratar un tour de ciclismo en los comercios que están ubicados ahí m
 ![Rodar a la orilla del mar](https://programadestinosmexico.com/que-hacer/aventura-y-ecoturismo/mazatlan/Ciclismo%20de%20Montana%20en%20Mazatlan.jpg)
 
 Si eres amante de las rutas, en Mazatlán puedes encontrar diversos lugares dónde unirte a recorridos por lugares maravillosos, areas boscosas y más. Puedes encontrar rutas de ciclismo amateur y semi-profesionales. Las distancias son para muchos un obstáculo sin embargo un ciclista lo contempla como un nuevo reto por vencer, no te pierdas de los servicios de ciclismo de ruta que Mazatlán te ofrece, por ejemplo,  De Al Habal y regreso o la de Lomas a Paseo Claussen y de regreso, aún hay más qué saber de la relación que Mazatlán tiene con el ciclismo:
-El pasado 8 de Diciembre se llevó a cabo el CicloTour 2018 con clubes de pedalistas de diversos estados de la república hasta participantes internacionales. El 3 de Febrero de 2019 se llevó a cabo la sexta edición del evento: PERRUTA2019 con el apoyo de la Secretaría de Turismo del Estado y el Instituto de Municipal del Deporte de Mazatlán... si lo tuyo son las bicis ¡aquí te va a encantar!
+El pasado 8 de Diciembre se llevó a cabo el CicloTour 2018 con clubes de pedalistas de diversos estados de la república hasta participantes internacionales. El 3 de Febrero de 2019 se llevó a cabo la sexta edición del evento: PERRUTA2019 con el apoyo de la Secretaría de Turismo del Estado y el Instituto de Turismo Municipal del Deporte de Mazatlán... si lo tuyo son las bicis ¡aquí te va a encantar!
 
 
 ![Ciclismo de Ruta](https://static.wixstatic.com/media/2a4742_9d1b46e2f8bdf80a4326fe045c6d40ed.png)
@@ -19,7 +19,7 @@ Existen tours que te llevan en una expedición a ayudar a la conservación de la
 
 > Recomendaciones para disfrutar tus recorridos en bici.
 > 1. **Siempre lleva agua**. *La hidratación es muy importante, tu cuerpo regula su temperatura mediante el sudor así que lo mejor es beber agua moderadamente para evitar algún contratiempo. ¡La salud es lo más importante!*
-> 2. **Lleva una bolsa de plástico resistente para residuos**. *Cuida el medio ambiente, permite que más y más personas se enamoren de lo bonito que es Mazatlán, recoge tu desechos siempre o ayuda a los demás si ellos no pueden.*
+> 2. **Lleva una bolsa de plástico resistente para residuos**. *Cuida el medio ambiente, permite que más y más personas se enamoren de lo bonito que es Mazatlán, recoge tus desechos siempre o ayuda a los demás si ellos no pueden.*
 > 3. **Usa casco**. *Los accidentes siempre están a la orden del día por eso te recomendamos que utilices casco y equipo de seguiridad necesario para que tu integridad física no corra peligro.*
 > 4. **Ungüentos y fármacos**. *Utiliza bloqueador solar del factor que tu piel requiera, si te es posible carga con una pomada para rozaduras y algún tipo de antiséptico para los raspones y unas aspirinas...*
 > 5. **Herramientas y parches**. *Es común que pinchemos una de las gomas sin querer, o quizá la bici requiera de un ajuste en la elevación del asiento... algún compañero con necesidad de una mano, lleva algo que pueda ser de utilidad en caso de ser necesario.*
