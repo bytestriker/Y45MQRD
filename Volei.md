@@ -1,16 +1,20 @@
 # Voleibol, de lo mejor para jugar en la playa #
 El voleibol de playa, un juego muy popular, dinámico, entretenido y además es sencillo de jugar, casi que lo único que necesitas es una pelota; llévate este recuerdo y si quieres un llaverito, vive y disfruta de tu juego favorito de playa en Mazatlán, imagínate la sensación de la arena bajo los pies, el clima tropical y la fresca brisa marina mientras juegas con tus amigos.
 
-Puedes ir a cualquiera de las que te mencionaré aquí:
+> Es importante que no olvides recoger tus desechos y los de tus mascotas, ayuda al planeta.
+
+Aunque todas las playas de Mazatlán te dejarán sin aliento, esta pequeña lista cuenta con las mejores reseñas para jugar voleibol de playa:
+
 ![Playa Los Pinos](http://www.playasmexico.com.mx/IMG/arton1739.png)
-Los Pinos, es una playa pequeña, la más pequeña de todas y con las olas más tranquilas.
+Los Pinos, es una playa pequeña, la más pequeña de todas y con las olas más tranquilas. Ideal para niños y toda la familia. Está ubicada al lado de ˝La Casa del Marino˝.
 
 ![Isla de la Piedra](http://www.playasmexico.com.mx/IMG/arton1613.png)
-Isla de la Piedra, hay playas protegidas, aves marinas, plantaciones de coco, playas lindas y olas suaves.
+Isla de la Piedra, hay playas protegidas, aves marinas, plantaciones de coco, playas lindas y olas suaves. Llegas en un catamarán, donde podrás ver el faro y otras atracciones.
 
-![Playa Gaviotas](https://media-cdn.tripadvisor.com/media/photo-m/1280/15/ae/be/72/playa-gaviotas-looking.jpg)
-Playa Gaviotas, tiene aguas azules y la arena es clara. Es excelente para tomar baños de sol o para jugar voleibol de playa.
+![Playa Gaviotas y Camarón](https://media-cdn.tripadvisor.com/media/photo-m/1280/15/ae/be/72/playa-gaviotas-looking.jpg)
+Playa Gaviotas y Camarón, tiene aguas azules y la arena es clara. Es excelente para tomar baños de sol o para jugar voleibol de playa, ubicada en la ˝zona dorada˝ este lugar te va a enamorar.
 
+Puedes adquirir balones, ropa deportiva, y artículos de playa para disfrutar al máximo tu visita.
 
 Mazatlán ♥ Voleibol.
 
