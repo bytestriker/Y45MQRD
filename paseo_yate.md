@@ -19,5 +19,14 @@ ofrece Mazatlán
 Pasar tiempo en pareja es importante, un recorrido en yate con esa persona especial, donde puedes compartir una rica comida o 
 cena en medio del mar, hacer especial esos momentos. ¡Seguramente seria un buen regalo para esa persona especial!
 
+¡[Fiesta en yate](https://static.wixstatic.com/media/a4be78_ce58ad02c2854e75bdf0b277ab858c32~mv2.jpg)
 
-Puedes disfrutar de una fiesta con tus amigos, nadar en un lugar seguro en medio del mar, festejar 
+Puedes disfrutar de una fiesta con tus amigos,cumpleaños, un buen lugar para organizar una despedida  de soltero
+nadar en un lugar seguro en medio del mar,en algunos casos tener la oportunidad de bucear, pescar, tomar el sol, hasta hacer
+un poco de surf. ¡Chicas no olviden el traje baño!.
+
+> Recomendaciones para disfrutar tu recorrido en yate.
+> 1. **Siempre lleva agua**. *La hidratación es muy importante,así que lo mejor es beber agua para evitar algún contratiempo. ¡La salud es lo más importante!*
+> 2. **Lleva bloqueador solar**. *Cuidar tu piel es reelevante.*
+> 3. **No excedas el consumo de alcohol**. *Recuerda que para divertirte no es necesario, si bien es un plus en este recorrido lo mejor es tener todos los sentidos al 100*
+> 4. **Cámara fotografica**. *Es necesaria para guardar esta experiencia.*
