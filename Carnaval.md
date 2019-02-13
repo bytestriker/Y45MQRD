@@ -31,4 +31,22 @@ El baile de fantasía, un evento donde asisten hermosas mujeres de todo México,
 ![Máscaras de Carnaval](https://www.curiosfera.com/wp-content/uploads/2016/10/Historia-del-carnaval.jpg)
 
 
-Vive todas las experiencias que el Carnaval Internacional de Mazatlán tendrá para ti en su edición del 2019.
+Vive todas las experiencias que el Carnaval Internacional de Mazatlán tendrá para ti en su edición del 2019. El tema de este año es
+«Equinoccio, el renacer de los sentidos»
+
+Se parte de la historia de una de las mejores fiestas en el mundo, visita Mazatlán del jue., 28 de febrero de 2019 al mar., 5 de marzo de 2019.
+¡Te esperamos!
+
+
+> Recomendaciones
+> **Deposita tus desechos dentro de lugares adecuados, evita contaminar las playas llevando tu basura a algún establecimiento o guardándola en un depósito personal para dejarla donde debe posteriormente**
+> 1. *Hidratación* Toma agua suficiente.
+> 2. *Protégete del sol* Usa un protector solar adecuado para tu tono de piel.
+> 3. *Evita obstaculizar areas reservadas* Mantente a una distancia considerable de las salidas de emergencia y escaleras para evitar entorpecer el flujo de la gente.
+> 4. *Usa alguna aplicación que te diga dónde estás para evitar la desorientación*
+> 5. *Si viajas acompañado, evita separarte del grupo*
+> 6. *Si eres víctima de algún delito, repórtalo a alguna autoridad en turno*
+> 7. *Aléjate de riñas o personas muy alcoholizadas*
+> 8. *Ingiere bebidas alcohólicas con moderazón*
+> 9. *Ubica zonas que consideres seguras en caso de contingencia*
+> 10. *Lleva una cantidad de dinero extra por separado en caso de que tu presupuesto se haya agotado*
