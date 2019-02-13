@@ -19,7 +19,7 @@ ofrece Mazatlán
 Pasar tiempo en pareja es importante, un recorrido en yate con esa persona especial, donde puedes compartir una rica comida o 
 cena en medio del mar, hacer especial esos momentos. ¡Seguramente seria un buen regalo para esa persona especial!
 
-¡[Fiesta en yate](https://static.wixstatic.com/media/a4be78_ce58ad02c2854e75bdf0b277ab858c32~mv2.jpg)
+![Fiesta en yate](https://static.wixstatic.com/media/a4be78_ce58ad02c2854e75bdf0b277ab858c32~mv2.jpg)
 
 Puedes disfrutar de una fiesta con tus amigos,cumpleaños, un buen lugar para organizar una despedida  de soltero
 nadar en un lugar seguro en medio del mar,en algunos casos tener la oportunidad de bucear, pescar, tomar el sol, hasta hacer
