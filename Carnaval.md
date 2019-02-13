@@ -47,6 +47,6 @@ Se parte de la historia de una de las mejores fiestas en el mundo, visita Mazatl
 > 5. *Si viajas acompañado, evita separarte del grupo*
 > 6. *Si eres víctima de algún delito, repórtalo a alguna autoridad en turno*
 > 7. *Aléjate de riñas o personas muy alcoholizadas*
-> 8. *Ingiere bebidas alcohólicas con moderazón*
+> 8. *Ingiere bebidas alcohólicas con moderación*
 > 9. *Ubica zonas que consideres seguras en caso de contingencia*
 > 10. *Lleva una cantidad de dinero extra por separado en caso de que tu presupuesto se haya agotado*
