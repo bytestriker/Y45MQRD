@@ -3,7 +3,7 @@ Desde hace más de 100 años, el carnaval de Mazatlán se celebra entre Febrero 
 
 Esta festividad está reconocida con el tercer lugar a nivel mundial según revistas de finanzas., además de que es el más importante de todo el puerto y el más reconcido de toda la república mexicana.
 
-![Carnaval de Mazatlán 2019](https://tvpacifico.mx/admin/images/noticias/225899-119760.jpg ){: width: 200px; height:180}
+![Carnaval de Mazatlán 2019](https://tvpacifico.mx/admin/images/noticias/225899-119760.jpg )
 
 Se caracteríza por su hermoso desfile, compuesto de bicicletas y carruajes, la realeza del carnaval, la quema del mal humor, el combate naval, juegos florales, un tema, el baile infantil, veladas de artes, monigotes y el baile de fantasía.
 
