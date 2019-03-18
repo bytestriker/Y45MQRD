@@ -6,7 +6,7 @@ A una hora o menos en el hermoso Mazatlán hay una playa increíble llena de roc
 
 Además, podrás maravillarte con los paisajes que el clima tropical, la playa, el océano, así como también ríos que hay en esta zona brindan un color verde que solo la naturaleza refleja en Mazatlán hasta llegar a "Las Labradas".
 
-A principios del año 2002 esta hermosa playa comenzó a hacerse de fama debido a que le hicieron promoción turística nacional a una joya que los mazatlecos conocían desde su primer generación. La noticia de los petroglifos en la playa recorrió el país de costa a costa y de norte a sur dando a conocer que habían muchísimas rocas volcánicas con grabados por toda la cosa.
+A principios del año 2002 esta hermosa playa comenzó a hacerse de fama debido a que le hicieron promoción turística nacional a una joya que los mazatlecos conocían desde su primer generación. La noticia de los petroglifos en la playa recorrió el país de costa a costa y de norte a sur dando a conocer que habían muchísimas rocas volcánicas con grabados por toda la costa.
 ![Las Labradas 2](http://mr.travelbymexico.com/imgBase/2016/06/laslabradas1.jpg)
 
 Asómbrate con los diseños tribales que representan diversos insectos, reptiles, seres humanoides, flores y más de estas milenarias obras de arte... dicen que no hay ni una piedra labrada con el mismo dibujo ¡anímate a contarlas!
@@ -30,7 +30,7 @@ Puedes encontrar algún tour desde Mazatlán hasta Las labradas o asistir con un
 
 * Imagenes de:
 
->1.- https://www.goapp.mx/quehacer-zona-arqueologica-de-las-labradas-877
->2.- http://mr.travelbymexico.com/imgBase/2016/06/laslabradas1.jpg
->3.- https://www.mexicoescultura.com/galerias/espacios/fotogalerias/sinaloa_labradas_01.jpg
->4.- http://www.playasmexico.com.mx/IMG/jpg_3938366536_cc8aa69fdd_z11.jpg
+> * 1.- https://www.goapp.mx/quehacer-zona-arqueologica-de-las-labradas-877
+> * 2.- http://mr.travelbymexico.com/imgBase/2016/06/laslabradas1.jpg
+> * 3.- https://www.mexicoescultura.com/galerias/espacios/fotogalerias/sinaloa_labradas_01.jpg
+> * 4.- http://www.playasmexico.com.mx/IMG/jpg_3938366536_cc8aa69fdd_z11.jpg
